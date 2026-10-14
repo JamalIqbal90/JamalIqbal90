@@ -1,0 +1,1 @@
+My name is Jamal and I am studying BSc Cyber Security! I am currently in my first year. My current interests are in cyber security and I hope to expand my knowledge on it. This module is Computer Programming where I will learn to code.
